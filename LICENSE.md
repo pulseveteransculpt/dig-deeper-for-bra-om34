@@ -1,4 +1,4 @@
-
+custom Script for dig deeper for brainrots offers the most advanced dig deeper for brainrots Script, with speed and no cooldown. Perfect for
 
 
 
